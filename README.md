@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @taian598
-- 👀 I’m interested in ... homens 
+- 👀 I’m interested in ... trabalhar 
 - 🌱 I’m currently learning ...a lidar com tudo isso 
-- 💞️ I’m looking to collaborate on ...pix 
+- 💞️ I’m looking to collaborate on .. crescer 
 - 📫 How to reach me ...meios de comunicação da plataforma 
 
 <!---
